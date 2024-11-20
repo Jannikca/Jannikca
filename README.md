@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on <>
-- 📫 How to reach me discord "Jannik_ca"
+- 📫 How to reach me on discord "Jannik_ca"
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: <>
 
